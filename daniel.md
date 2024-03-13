@@ -33,16 +33,23 @@ Olá!
 
 
 
+- ![](https://media.giphy.com/media/26Su5umeQ96mpOmkee/giphy.gif)
+
+
+
+
 
 perfis do Instagram
-danielricardoo7 (principal)
-rickxzin2607 (secundária)
-listenmyprblms
 
+ 
+- danielricardoo7 (principal)
+- rickxzin2607 (secundária)
+- listenmyprblms
+
+ 
 Project Z
 dani3lplayerqp
 
 
-
-Whatsapp 
+hatsapp 
 +55 41 99860-6640
