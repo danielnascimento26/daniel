@@ -36,7 +36,9 @@ Olá!
 
 
 insta
-@yz.dan.yz 
+@danielricardoo7
+
+
 
 whatsapp 
 +55 41 99860-6640
