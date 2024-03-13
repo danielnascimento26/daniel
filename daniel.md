@@ -19,8 +19,7 @@ Olá!
 - Meu tipo de jogo favorito pode variar entre quase todos os tipos
 
 
-- Atualmente tenho jogado Chrono Trigger, Dead Cells, Stardew Valley e Graveyard Keeper
-  
+- Atualmente tenho jogado CASTLEVANIA DRACULA X:CHRONICLES, New Super Mario Bros., Dead Cells e Pokémon SouLSilver/HeartGold
   
 
 
@@ -35,8 +34,15 @@ Olá!
 
 
 
-insta
-@yz.dan.yz 
+perfis do Instagram
+danielricardoo7 (principal)
+rickxzin2607 (secundária)
+listenmyprblms
 
-whatsapp 
+Project Z
+dani3lplayerqp
+
+
+
+Whatsapp 
 +55 41 99860-6640
