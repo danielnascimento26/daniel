@@ -43,13 +43,12 @@ perfis do Instagram
 
  
 - danielricardoo7 (principal)
-- rickxzin2607 (secundária)
-- listenmyprblms
+- ricardoodaniel7 (secundária)
 
  
 Project Z
 dani3lplayerqp
 
 
-hatsapp 
+whatsapp 
 +55 41 99860-6640
